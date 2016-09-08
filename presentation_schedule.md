@@ -22,6 +22,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
+* Michaela Webster
 
 ## 09 DEC 2016 (Max 6)
 
