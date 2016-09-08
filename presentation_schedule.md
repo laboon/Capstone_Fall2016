@@ -8,6 +8,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 16 SEP 2016 (Max 10)
 * JJ Naughton
+* Zac Yu
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
