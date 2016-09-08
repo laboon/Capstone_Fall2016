@@ -14,6 +14,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
+* Joe Meszar
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
