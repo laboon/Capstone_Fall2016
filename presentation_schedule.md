@@ -7,7 +7,6 @@ Note that there is a limit on how many people can give a presentation on the sam
 You may sign up for an OTHER date only with my permission.  Please mark your name under the Other heading and email me why you need to give your presentation on an alternate day.
 
 ## 16 SEP 2016 (Max 10)
-* JJ Naughton
 
 ## 23 SEP 2016 (Max 10)
 
@@ -18,7 +17,8 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Steven Saylor
 
 ## 18 NOV 2016 (Max 10)
-
+* Devansh Desai
+* 
 ## 09 DEC 2016 (Max 6)
 
 ## Other (remember to email Prof Laboon!)
