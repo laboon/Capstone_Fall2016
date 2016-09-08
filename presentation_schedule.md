@@ -10,6 +10,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * JJ Naughton
 
 ## 23 SEP 2016 (Max 10)
+*Benjamin Anderson
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
