@@ -19,6 +19,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Steven Saylor
 
 ## 18 NOV 2016 (Max 10)
+* Devansh Desai
 
 ## 09 DEC 2016 (Max 6)
 
