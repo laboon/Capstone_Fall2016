@@ -16,6 +16,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Benjamin Anderson
 * Patrick McLaren
 * Emily Pepke
+* Michael Oles
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
