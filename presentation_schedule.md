@@ -37,6 +37,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Devansh Desai
 * Michaela Webster
 * Audrey Ann Blakely
+* Brandon Torchia
 
 ## 09 DEC 2016 (Max 6)
 
