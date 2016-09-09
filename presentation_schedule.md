@@ -18,11 +18,15 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Emily Pepke
 * Michael Oles
 * Alexandra Savage
+* Mick Lichtenberg
+* 
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
 * Michael Kaliman
 * Joe Meszar
+* Nicolò Manfredi
+* Daniel Kindler
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
