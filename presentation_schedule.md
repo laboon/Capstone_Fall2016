@@ -43,6 +43,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Michaela Webster
 * Audrey Ann Blakely
 * Brandon Torchia
+* Natalie Boehm
 
 ## 09 DEC 2016 (Max 6)
 
