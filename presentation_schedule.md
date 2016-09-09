@@ -22,6 +22,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Steven Saylor
 * Reed Armstrong
 * Chris Lagunilla
+* Vivien Chang
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
