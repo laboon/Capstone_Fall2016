@@ -22,6 +22,8 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
+* Brandon Torchia
+* 
 
 ## 09 DEC 2016 (Max 6)
 
