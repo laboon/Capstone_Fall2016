@@ -31,6 +31,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Daniel Kindler
 * Sean McCarthy
 * Craig Kodman
+* Damani Brown
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
