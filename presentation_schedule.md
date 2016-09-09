@@ -8,8 +8,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 16 SEP 2016 (Max 10)
 * JJ Naughton
-* Zac Yu
-* Evan Sheen
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
@@ -24,7 +22,8 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Steven Saylor
 * Reed Armstrong
 * Chris Lagunilla
-* Vivien Chang
+* Abdulkarim Alshunaibar
+
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
