@@ -23,6 +23,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Max Benson
 * Michael Kaliman
 * Joe Meszar
+* Nicolò Manfredi
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
