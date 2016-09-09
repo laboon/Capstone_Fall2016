@@ -32,6 +32,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Nick Miller
 * Rohan Patel
 * Cory Trbojevic
+* Abdulkarim Alshunaibar
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
