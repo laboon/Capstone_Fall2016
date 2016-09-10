@@ -12,6 +12,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Evan Sheen
 * Alexandra Bush
 * Clint Wadley
+* Sumanyu Gupta
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
