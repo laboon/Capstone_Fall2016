@@ -54,6 +54,8 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Audrey Ann Blakely
 * Brandon Torchia
 * Natalie Boehm
+* Cyrus Ramavarapu
+* 
 
 ## 09 DEC 2016 (Max 6)
 
