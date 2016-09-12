@@ -23,6 +23,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Mick Lichtenberg
 * Ben Graham
 * Ethan Pavolik
+* Guiseppe Zielinski
 * 
 
 ## 21 OCT 2016 (Max 10)
