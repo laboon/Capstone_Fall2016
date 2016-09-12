@@ -64,6 +64,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Aaron Miller
 * Daniel Justice
 * Edwin Mellett
+* Emilee Betz
 
 ## 09 DEC 2016 (Max 6)
 
