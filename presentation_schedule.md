@@ -14,6 +14,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Clint Wadley
 * Sumanyu Gupta
 * Robert Webb
+* Annie Latsko
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
