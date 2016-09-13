@@ -15,6 +15,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Sumanyu Gupta
 * Robert Webb
 * Annie Latsko
+* Robbie McKinstry
 
 ## 23 SEP 2016 (Max 10)
 * Benjamin Anderson
