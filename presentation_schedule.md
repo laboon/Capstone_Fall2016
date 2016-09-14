@@ -7,6 +7,7 @@ Note that there is a limit on how many people can give a presentation on the sam
 You may sign up for an OTHER date only with my permission.  Please mark your name under the Other heading and email me why you need to give your presentation on an alternate day.
 
 ## 16 SEP 2016 (Max 10)
+* Nate Patton
 * JJ Naughton
 * Zac Yu
 * Evan Sheen
