@@ -71,5 +71,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 
 ## 09 DEC 2016 (Max 6)
 * Chris Corsi
-* 
+* Jennifer Zysk
+
 ## Other (remember to email Prof Laboon!)
