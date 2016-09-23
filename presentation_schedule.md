@@ -19,17 +19,17 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Robbie McKinstry *
 
 ## 23 SEP 2016 (Max 10)
-* Benjamin Anderson
-* Patrick McLaren
-* Emily Pepke
-* Michael Oles
-* Alexandra Savage
-* Mick Lichtenberg
-* Ben Graham
-* Ethan Pavolik
-* Austin Pilz
-* Eric Larkin
-* Guiseppe Zielinski
+* Benjamin Anderson *
+* Patrick McLaren *
+* Emily Pepke *
+* Michael Oles *
+* Alexandra Savage *
+* Mick Lichtenberg *
+* Ben Graham *
+* Ethan Pavolik *
+* Austin Pilz *
+* Eric Larkin *
+* Guiseppe Zielinski *
 
 ## 21 OCT 2016 (Max 10)
 * Max Benson
