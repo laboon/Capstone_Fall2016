@@ -75,5 +75,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Jennifer Zysk
 * Peter Schaldenbrand
 * Bryan Heim
+* Peter McCloskey
 
 ## Other (remember to email Prof Laboon!)
