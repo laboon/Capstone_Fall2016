@@ -70,11 +70,12 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Edwin Mellett
 * Emilee Betz
 
-## 09 DEC 2016 (Max 6)
+## 09 DEC 2016 (Max 10)
 * Chris Corsi
 * Jennifer Zysk
 * Peter Schaldenbrand
 * Bryan Heim
 * Peter McCloskey
+* Shawn Jackson
 
 ## Other (remember to email Prof Laboon!)
