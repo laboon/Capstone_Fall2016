@@ -77,5 +77,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Bryan Heim
 * Peter McCloskey
 * Shawn Jackson
+* Salvatore Avena
 
 ## Other (remember to email Prof Laboon!)
