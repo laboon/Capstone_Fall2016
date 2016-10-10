@@ -78,5 +78,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Peter McCloskey
 * Shawn Jackson
 * Salvatore Avena
+* Michael Kutilek
 
 ## Other (remember to email Prof Laboon!)
