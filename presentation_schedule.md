@@ -42,7 +42,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Damani Brown *
 * David Bickford *
 * Kevin Zhang *
-* Tim Smith
 * Chevaughn Barry *
 
 ## 04 NOV 2016 (Max 10)
@@ -80,5 +79,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Salvatore Avena
 * Michael Kutilek
 * Jacob Piskorik
+* Tim Smith
 
 ## Other (remember to email Prof Laboon!)
