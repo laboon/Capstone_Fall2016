@@ -32,18 +32,18 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Guiseppe Zielinski *
 
 ## 21 OCT 2016 (Max 10)
-* Max Benson
-* Michael Kaliman
-* Joe Meszar
+* Max Benson *
+* Michael Kaliman *
+* Joe Meszar *
 * Nicolò Manfredi
-* Daniel Kindler
-* Sean McCarthy
-* Craig Kodman
-* Damani Brown
-* David Bickford
-* Kevin Zhang
+* Daniel Kindler *
+* Sean McCarthy *
+* Craig Kodman *
+* Damani Brown *
+* David Bickford *
+* Kevin Zhang *
 * Tim Smith
-* Chevaughn Barry
+* Chevaughn Barry *
 
 ## 04 NOV 2016 (Max 10)
 * Steven Saylor
@@ -79,5 +79,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Shawn Jackson
 * Salvatore Avena
 * Michael Kutilek
+* Jacob Piskorik
 
 ## Other (remember to email Prof Laboon!)
