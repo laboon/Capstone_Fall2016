@@ -42,7 +42,6 @@ Fall 2016 Syllabus
 
 4 NOV 2016
   * Presentations (Internship Students)
-  * Software Engineering Topic (Project Students)
   * Sprint 5 Begins
   
 11 NOV 2016
@@ -51,8 +50,6 @@ Fall 2016 Syllabus
 
 18 NOV 2016
   * Presentations (Internship Students)
-  * Software Engineering Topic (Project Students)
-
   * Sprint 6 Begins
   
 25 NOV 2016 - NO CLASS! THANKSGIVING BREAK
