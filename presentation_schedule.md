@@ -45,16 +45,16 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Chevaughn Barry *
 
 ## 04 NOV 2016 (Max 10)
-* Steven Saylor
-* Reed Armstrong
-* Chris Lagunilla
-* Vivien Chang
-* Nick Miller
-* Rohan Patel
-* Cory Trbojevic
-* Abdulkarim Alshunaibar
-* Pauline Walsh
-* Colin Schultz
+* Steven Saylor *
+* Reed Armstrong *
+* Chris Lagunilla *
+* Vivien Chang *
+* Nick Miller *
+* Rohan Patel *
+* Cory Trbojevic *
+* Abdulkarim Alshunaibar *
+* Pauline Walsh *
+* Colin Schultz *
 
 ## 18 NOV 2016 (Max 10)
 * Devansh Desai
