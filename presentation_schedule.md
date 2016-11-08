@@ -71,6 +71,7 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Elton Hartman (can go some other time, too)
 
 ## 09 DEC 2016 (Max 10)
+* Ryan Ching
 * Chris Corsi
 * Jennifer Zysk
 * Peter Schaldenbrand
