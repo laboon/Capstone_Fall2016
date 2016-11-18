@@ -57,18 +57,18 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Colin Schultz *
 
 ## 18 NOV 2016 (Max 10)
-* Devansh Desai
-* Michaela Webster
-* Audrey Ann Blakely
-* Brandon Torchia
-* Natalie Boehm
-* Cyrus Ramavarapu
-* Albert Seeke
-* Aaron Miller
-* Daniel Justice
-* Edwin Mellett
-* Emilee Betz
-* Elton Hartman (can go some other time, too)
+* Devansh Desai *
+* Michaela Webster *
+* Audrey Ann Blakely *
+* Brandon Torchia *
+* Natalie Boehm *
+* Cyrus Ramavarapu *
+* Albert Seeke *
+* Aaron Miller *
+* Daniel Justice *
+* Edwin Mellett *
+* Emilee Betz *
+* Elton Hartman (can go some other time, too) *
 
 ## 09 DEC 2016 (Max 10)
 * Ryan Ching
