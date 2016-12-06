@@ -82,5 +82,6 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 * Michael Kutilek
 * Jacob Piskorik
 * Tim Smith
+* Mark Ignaczak
 
 ## Other (remember to email Prof Laboon!)
