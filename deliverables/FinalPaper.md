@@ -13,7 +13,9 @@ The paper must be 8 - 12 pages in length, double-spaced, using a relatively stan
 
 Please ensure that your name as well as the name of the project you worked on is listed, along with your faculty advisor (whoever signed your Faculty Learning Agreement, or your research advisor).
 
-This is an individual project, even though you may have worked on a project with a group.  That is, every student is responsible for turning in their own paper, even if they worked with somebody else in the class during the internship or on a project.
+For 1900 students, this is an individual project, even though you may have worked on a project with a group.  That is, every student is responsible for turning in their own paper, even if they worked with somebody else in the class during the internship or on a project.
+
+For 1980/1981 students, you may turn in one paper per group.
 
 ## DETAILS
 
