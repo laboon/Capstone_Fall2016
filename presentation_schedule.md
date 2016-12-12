@@ -73,15 +73,16 @@ You may sign up for an OTHER date only with my permission.  Please mark your nam
 ## 09 DEC 2016 (Max 10)
 * Ryan Ching
 * Chris Corsi
-* Jennifer Zysk
-* Peter Schaldenbrand
-* Bryan Heim
+* Jennifer Zysk *
+* Peter Schaldenbrand *
+* Bryan Heim *
 * Peter McCloskey
 * Shawn Jackson
 * Salvatore Avena
 * Michael Kutilek
 * Jacob Piskorik
 * Tim Smith
-* Mark Ignaczak
+* Mark Ignaczak *
+* Wyatt Borsos *
 
 ## Other (remember to email Prof Laboon!)
